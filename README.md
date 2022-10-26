@@ -1,0 +1,2 @@
+# Szalagavato
+Orai feladat 
